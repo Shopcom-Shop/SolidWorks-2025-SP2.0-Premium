@@ -1,12 +1,12 @@
 <img width="1600" height="1600" alt="SolidWorks 2025 SP2 0 Premium" src="https://github.com/user-attachments/assets/01fd10ec-6027-484e-b99d-3c19a0b1dfc2" />
 
+Download link :
+
+https://www.shopcom.tn/product/solidworks-2025-sp2-0-premium/download
+
 Torrent download link :
 
 https://www.shopcom.tn/product/solidworks-2025-sp2-0-premium/torrent-download
-
-Download link :
-
-https://www.shopcom.tn/product/solidworks-2025-sp2-0-premium/download 
 
 Purchase link :
 
